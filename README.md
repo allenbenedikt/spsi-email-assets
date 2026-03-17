@@ -1,0 +1,1 @@
+# SPSI Email Signature Assets
